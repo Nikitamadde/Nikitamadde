@@ -1,1 +1,1 @@
-# Nikita-Madde.WT-Assignments
+# NikitaMadde.WT-Assignments
